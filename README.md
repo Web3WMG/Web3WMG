@@ -1,1 +1,1 @@
-# freesite.3wmg.site
+# 3wmg
