@@ -1,1 +1,1 @@
-# 3wmg
+# [3wmg.site](https://3wmg.site)
