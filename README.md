@@ -1,1 +1,1 @@
-# [3wmg.site](https://3wmg.site)
+# [Web3WMG](https://github.com/Web3WMG)
